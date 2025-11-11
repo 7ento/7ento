@@ -1,6 +1,6 @@
 <div align="center">
   
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Proza+Libre&size=30&duration=2000&pause=2000&color=000000&center=true&vCenter=true&width=435&lines=Hi!!!+I'm+Cento+%3C3;Glad+to+see+you+here!)](https://git.io/typing-svg)
-<img src="https://media.tenor.com/8542534085547160120.gif">
+<img src="[https://media.tenor.com/8542534085547160120.gif](https://tenor.com/ru/view/death-note-mikami-mikami-teru-teru-teru-mikami-gif-8542534085547160120)">
 
 </div>
